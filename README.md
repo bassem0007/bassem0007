@@ -11,11 +11,11 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/bassem0007?tab=repositories](https://github.com/bassem0007?tab=repositories)
 
-- 📫 How to reach me **bassem.riachy@gmail.com**
+- 📫 Reach me at: **bassem.riachy@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/19bMUVLu7vVgIFe-TctvmgQOuNYtjFuKQ](https://drive.google.com/drive/folders/19bMUVLu7vVgIFe-TctvmgQOuNYtjFuKQ)
+- 📄 My resume: [https://drive.google.com/drive/folders/19bMUVLu7vVgIFe-TctvmgQOuNYtjFuKQ](https://drive.google.com/drive/folders/19bMUVLu7vVgIFe-TctvmgQOuNYtjFuKQ)
 
-- ⚡ Fun fact **Gamer and sports lover!**
+- ⚡ Fun fact: **Gamer and sports lover!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
